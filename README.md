@@ -1,0 +1,1 @@
+`This is an official announcement:  The C-130 mod is DEAD.  Any use of the term Hercules, Herc, C-130, etc within the context of DCS refers to the paid module.  If you are using the mod version, then you are forefitting ANY right to discuss the Hercules.  You are living on borrowed time, and we WILL find you.  Pin this, you coward mods.`
